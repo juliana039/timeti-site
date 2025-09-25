@@ -13,7 +13,7 @@ Não coletamos, armazenamos ou compartilhamos dados pessoais dos usuários.
 
 ## Contato
 Se você tiver dúvidas sobre esta Política de Privacidade, entre em contato:  
-**support@timetiapp.com**
+**juliana.pereira.magalhaes@gmail.com**
 
 ---
 
